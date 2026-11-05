@@ -18,7 +18,7 @@ my books:
 - Learning SQL - my path to Database Manager
 - The Gifts of Imperfection - proud of where i am
 - Where the Crawdads Sing - girl alone in nature but strong
-
+-Blooming where exactly am gonna be.
 still learning. next i want to learn how to filter by feeling.
 
 - Luna, Nov 2026, Ngari.
